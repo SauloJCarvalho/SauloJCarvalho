@@ -9,7 +9,7 @@
 
 - 📫 Como chegar a mim **saulojecarvalho@gmail.com**
 
-- ⚡ Curiosidade: **Amante de Games Vôlei.**
+- ⚡ Curiosidade: **Amante de Games.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
